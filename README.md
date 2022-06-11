@@ -1,2 +1,2 @@
 lol.
-https://zimsneexh.eu
+https://zsxh.eu
