@@ -1,2 +1,1 @@
-lol.
 https://zsxh.eu
